@@ -7,3 +7,5 @@
    If you have TIMEKEEPER COOKIE as one of ur fav characters or have her as top 1 fav character BMF RIGHT NOW!!!!
 
    Thin ice : People over 18 IWC unless i know you
+
+Also DNC my skins w/o permit
