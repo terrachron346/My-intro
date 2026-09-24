@@ -41,7 +41,7 @@
 
 
 
-<img width="20" height="20" alt="294f9f36" src="https://github.com/user-attachments/assets/595ee405-eba6-4e33-8344-aa5e78a48954" />cutie patooties here 👇 🥺
+<img width="20" height="20" alt="294f9f36" src="https://github.com/user-attachments/assets/595ee405-eba6-4e33-8344-aa5e78a48954" />cutie patooties here 👇 🥺 (includes Ananas n Lychee too)
 
 
 <img width="99" height="56" alt="dfbe93m-fd2dc81f-b6c9-42dd-b36c-b88f2455ab3b" src="https://github.com/user-attachments/assets/e3298b76-b376-4a89-bb5b-45949c5c4944" />
