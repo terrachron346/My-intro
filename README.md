@@ -1,7 +1,7 @@
  # "Just in the nick of time!"
 
   Greetings! you can call me Terrachron or terra! Always W2I &amp; C+H! unless stated otherwise
-  I LOVE CUDDLES!!!!
+     I LOVE CUDDLES!!!!
 
   i am mainly at Cookie Run area in PT(ponytown) so you can find me there!
 
@@ -12,4 +12,4 @@
 
    Thin ice : People over 18 IWC unless i know you
 
-Also DNC my skins w/o permit
+   Also DNC my skins w/o permit
