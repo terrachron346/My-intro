@@ -12,6 +12,8 @@
   
    <img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />my birthday is Jan 10
   
+<img width="20" height="20" alt="6f7745cc" src="https://github.com/user-attachments/assets/8f76fb2c-02b2-4608-9f7c-77be1caca235" />I'm Arab
+
 
 <img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />I LOVE CUDDLES !!!
 
