@@ -4,6 +4,9 @@
 
 
 
+
+
+
  <img width="20" height="20" alt="294f9f36" src="https://github.com/user-attachments/assets/595ee405-eba6-4e33-8344-aa5e78a48954" />
  Greetings! you can call me Terrachron or terra! Always W2I &amp; C+H! unless stated otherwise
   
@@ -48,3 +51,10 @@
 <img width="99" height="56" alt="dfbe93m-fd2dc81f-b6c9-42dd-b36c-b88f2455ab3b" src="https://github.com/user-attachments/assets/e3298b76-b376-4a89-bb5b-45949c5c4944" />
 <img width="99" height="56" alt="der5kwy-155e2c59-a92e-4399-9d08-4de5fa250eaf" src="https://github.com/user-attachments/assets/c17becdc-2834-4e72-be44-7a535c640aee" />
 <img width="99" height="56" alt="ddi7eoh-3dea4aa3-ac1f-489a-8d9b-6a70558c6074" src="https://github.com/user-attachments/assets/f0af4739-c83f-4c97-a4f3-1e5818e95e97" />
+
+
+
+
+
+
+<img width="736" height="246" alt="17d26b17-d832-451b-a1ca-5b822fe8a275" src="https://github.com/user-attachments/assets/65c44f80-f755-4337-928d-fa296f03e684" />
