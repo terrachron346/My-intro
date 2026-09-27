@@ -7,6 +7,7 @@
  <img width="20" height="20" alt="294f9f36" src="https://github.com/user-attachments/assets/595ee405-eba6-4e33-8344-aa5e78a48954" />
  Greetings! you can call me Terrachron or terra! Always W2I &amp; C+H! unless stated otherwise
   
+   <img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />my birthday is Jan 10
   
 
 <img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />I LOVE CUDDLES!!!
