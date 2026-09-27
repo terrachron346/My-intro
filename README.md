@@ -8,32 +8,39 @@
 
 
  <img width="20" height="20" alt="294f9f36" src="https://github.com/user-attachments/assets/595ee405-eba6-4e33-8344-aa5e78a48954" />
- Greetings! you can call me Terrachron or terra! Always W2I &amp; C+H! unless stated otherwise
+ Greetings ! you can call me Terrachron or terra ! Always W2I &amp; C+H ! unless stated otherwise
   
    <img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />my birthday is Jan 10
   
 
-<img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />I LOVE CUDDLES!!!
+<img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />I LOVE CUDDLES !!!
 
 
-<img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />i am mainly at Cookie Run area in PT(ponytown) so you can find me there!
+<img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />i am mainly at Cookie Run area in PT(ponytown) so you can find me there !
 
 
 <img width="20" height="20" alt="294f9f36" src="https://github.com/user-attachments/assets/595ee405-eba6-4e33-8344-aa5e78a48954" /> My interests : CRK n CROB n maybe CRTOA..👀👀
 
 
    
-   <img width="20" height="20" alt="6f7745cc" src="https://github.com/user-attachments/assets/8f76fb2c-02b2-4608-9f7c-77be1caca235" />i love LOVE Timekeeper Cookie If you have TIMEKEEPER COOKIE as one of ur fav characters or have her as top 1 fav character BMF RIGHT NOW!!!!
-    If you also have the dragon cookies from crob as ur favorite too BMF!!!
+   <img width="20" height="20" alt="6f7745cc" src="https://github.com/user-attachments/assets/8f76fb2c-02b2-4608-9f7c-77be1caca235" />i love LOVE Timekeeper Cookie If you have TIMEKEEPER COOKIE as one of ur fav characters or have her as top 1 fav character BMF RIGHT NOW !!!!
+    If you also have the dragon cookies from crob as ur favorite too BMF !!!
 
-<img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />BYF:My fav CRK ships is Shadowvanilla, Shadowsugar and Purelily. if i became harsh when you do something wrong, lmk and that I'm very sorry for my behavior! 😔
+<img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />BYF:My fav CRK ships is Shadowvanilla, Shadowsugar and Purelily. if i became harsh when you do something wrong, lmk and that I'm very sorry for my behavior ! 😔
 
 
 
    <img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />Thin ice : People over 18 IWC unless i know you
 
+<img width="20" height="20" alt="04c63a61" src="https://github.com/user-attachments/assets/2db744ff-37a0-4673-a132-d6a4d1de9648" />Oh and I'm a digital artist ! there's one of my recent art posts!
+
+<img width="599" height="600" alt="IMG_20260924_005037" src="https://github.com/user-attachments/assets/52f4cc4f-e204-492a-a2da-7538c53db450" />
+
+
 
 <img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />My disc:terrachron0orane
+
+<img width="20" height="20" alt="294f9f36" src="https://github.com/user-attachments/assets/595ee405-eba6-4e33-8344-aa5e78a48954" />My tiktok:terrachron_caramel
 
 
    <img width="20" height="20" alt="6f7745cc" src="https://github.com/user-attachments/assets/8f76fb2c-02b2-4608-9f7c-77be1caca235" />Also DNC my skins w/o permit
