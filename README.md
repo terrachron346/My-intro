@@ -33,6 +33,8 @@
    <img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />Thin ice : People over 18 IWC unless i know you
 
 
+<img width="20" height="20" alt="d89d9965" src="https://github.com/user-attachments/assets/b61fdafd-ff35-4ed8-bfc5-25d47635bf52" />My disc:terrachron0orane
+
 
    <img width="20" height="20" alt="6f7745cc" src="https://github.com/user-attachments/assets/8f76fb2c-02b2-4608-9f7c-77be1caca235" />Also DNC my skins w/o permit
 
